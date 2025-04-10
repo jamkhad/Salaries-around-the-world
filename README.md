@@ -1,0 +1,1 @@
+# Salaries-around-the-world
